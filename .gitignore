@@ -9,6 +9,7 @@
 # Intellij
 .idea/
 .idea/workspace.xml
+.idea/inspectionProfiles/profiles_settings.xml
 *.iml
 *.iws
 out/
@@ -26,4 +27,4 @@ target/
 scandir/
 
 
-.idea/inspectionProfiles/profiles_settings.xml
+
