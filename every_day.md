@@ -22,3 +22,7 @@ The next day, this event was the headline or main title of all newspapers. With 
 
 The Great President
 As the founder of the republic, the president had many good qualities. Before coming to power, he was a generous lawyer. He accept no fee to selflessly offer legal guidance and opinions to those who were out of work or uneducated. As believing mankind to be equal, he devoted himself to stopping unfair anti-black laws. He set up the Black Youth League and was voted to be the leader. However, though he kept peaceful principle without violence and terrors, his mean enemies still blew up his house and attacked his relatives, and he himself couldn't escape being sentenced to 30 years in prison.
+
+Not fearing of the prison guards' cruelty, he kept active and begged no mercy from them. As a matter of fact, he was always hopeful and never lost his heard during the stage even though he was in trouble.
+
+Finally, people rewarded him with the leader's position and a gold blanket.
