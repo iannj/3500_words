@@ -1,8 +1,10 @@
-Hiding behind the loose dusty curtain, a teenage packed up his overcoat into the suitcase. He planned to leave home at dust although there was thunder and lightning outdoors. He had got to do this because he was tired of his parents' nagging about his English study and didn't want to go through it any longer. He couldn't go along well with his English study and dislike joining any English classes because he thought his teacher ignored him on purpose. As a result, his score in each exam never added up to 60.
+Fall in love with English
 
-His partner was concerned about him very much. She exactly understood what he was suffering from, but disagree with his idea. In order to calm him down and settle his problem, she talked with him face to face and swapped a series of learning tips with him. The items she set down helped him find the highway to studying English well.
+Hiding behind the loose dusty curtain, a teenager packed up his overcoat into the suitcase. He planned to leave home at dust though there was thunder and lightning outdoor. He had got to do this because he was tired of his parents' nagging about his English study and didn't want to go through it any longer. He couldn't get along well with his English study and dislike joining in any English classes because he thought his teacher ignored him on purpose. As a result, his score in each exam never added up to 60.
 
-The teenage was grateful and got great power from his friend's words. Now, he has recovered from being upset and has fallen in love with English.
+His partner was concerted about him very much. She exactly understood what he was suffering from, but disagree his idea. In order to calm him down and settle his problem, she talked with him face to face and swapped a series of learning tips with him. The items she set down helped him find the highway to studying English well.
+
+The teenager was grateful and got great power from his friend's words. Now, he had recovered from being upset and had fallen love in English.
 
 Voyages of people from England play an important in spreading English. At present, English is frequently spoken as an official or common language in many countries, such as American, Singapore, Malaysia and some African countries. All based on British English, the Englishes spoken in these countries can be well understood by native English speakers. But actually, the Englishes have been gradually changing in accents, spellings, expressions and usage of vocabulary.
 
@@ -26,3 +28,15 @@ As the founder of the republic, the president had many good qualities. Before co
 Not fearing of the prison guards' cruelty, he kept active and begged no mercy from them. As a matter of fact, he was always hopeful and never lost his heard during the stage even though he was in trouble.
 
 Finally, people rewarded him with the leader's position and a gold blanket.
+
+
+Different countries have different English
+
+Voyages from the people of England play an important part in spreading English. At present, the English language is frequently spoken as an official or common language in many countries, such as American, Singapore, Malaysia and some African countries. All based on Britain English, the English spoken in those countries can be well understood by native English speakers. But actually, the Englishes have been gradually changing in accents, spellings, expressions and usage of vocabulary.
+
+Base on this fact, you can make use of the difference to tell which country the foreigners of your block are from. For example, if a boss commands his driver,"Come up straight to my apartment by elevator and take some gas for my trucks and cabs." instead of requesting,"Please come to my flat by lift and take some petrol for my lorries and taxis." you can recognize his American identity, while the latter suggests that he is British.
+
+A Brave Maid
+
+A wooden vase from the Ming Dynasty at the entrance of reception hall amazed everyone. The artists designed it in a rare style and selected valuable jewels to decorate it. People thought highly of the fancy colour of honey and the beautiful paintings on it.
+
